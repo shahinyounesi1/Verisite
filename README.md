@@ -44,4 +44,4 @@ Calculating exact distances from verified land parcels to the nearest National G
 Developed by an Urban Planning Master's student and Chevening Scholar based at Newcastle University. This project bridges the gap between academic urban theory and practical, tech-driven solutions for real-world environmental challenges. 
 
 *Let's connect!*
-🔗 [My LinkedIn Profile](Link-to-your-LinkedIn)# 
+🔗 [My LinkedIn Profile](https://www.linkedin.com/in/shahin-younesi-a695ab387?utm_source=share_via&utm_content=profile&utm_medium=member_android)# 
