@@ -52,4 +52,4 @@ Developed by an Urban Planning Master's student and Chevening Scholar based at N
 - 📋 National Grid capacity overlay — Planned
 
 *Let's connect!*
-🔗 [My LinkedIn Profile](https://www.linkedin.com/in/shahin-younesi-a695ab387?utm_source=share_via&utm_content=profile&utm_medium=member_android)# 
+🔗 [My LinkedIn Profile](https://www.linkedin.com/in/shahin-younesi-a695ab387?utm_source=share_via&utm_content=profile&utm_medium=member_android)
